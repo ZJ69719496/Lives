@@ -1,2 +1,20 @@
 # Lives
 我的生活  生活不仅仅有代码  还有猫毛
+
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/1.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/2.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/3.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/4.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/5.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/6.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/7.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/8.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/9.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/10.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/11.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/12.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/13.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/14.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/15.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/16.jpg)  
+![](https://github.com/ZJ69719496/LargeScreenDesigner/Lives/master/17.jpg)  
