@@ -1,5 +1,5 @@
 # Lives
-我的生活  生活不仅仅有代码  还有猫毛
+生活不仅有代码  还有猫毛
 
 ![](https://github.com/ZJ69719496/Lives/blob/master/1.jpg)  
 ![](https://github.com/ZJ69719496/Lives/blob/master/2.jpg)  
